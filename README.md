@@ -2,7 +2,7 @@
 
 🎓 Computer Science Student at IIC<br/>
 🌿 Learning App Development<br/>
-🎥 I make videos about anime one [Youtube](https://www.youtube.com/@dranimo0)
+🎥 I make videos about anime on [Youtube](https://www.youtube.com/@dranimo0)
 
 
 ## 🌐 Socials:
