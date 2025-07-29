@@ -2,6 +2,7 @@
 
 🎓 Computer Science Student at IIC<br/>
 🌿 Learning App Development<br/>
+🌐 My Portfolio [Website](badalshrestha0.com.np)
 🎥 I make videos about anime on [Youtube](https://www.youtube.com/@dranimo0)
 
 
